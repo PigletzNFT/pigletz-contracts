@@ -152,4 +152,4 @@ Follow us for more info, pre-sale and sale dates and discounts
 -   [Join our Telegram Channel](https://t.me/+A-ruHvQV4mQyMzE8)
 -   [Youtube Channel](https://www.youtube.com/channel/UC8VO0GEQPZW0ONdqmhY3jCg)
 
-© 2021 Pigletz
+© 2021-2022 Pigletz
